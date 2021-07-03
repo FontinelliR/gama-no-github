@@ -1,0 +1,1 @@
+O curso est  sendo muito intenso, puxado do jeito que ‚ bom que seja. Tem mexido bastante com quem eu sou e me feito questionar meu rumo de vida e carreira. Achei no in¡cio que seria mais um curso no qual eu me desinteressaria rapidamente mas, surpreendentemente, nÆo est  sendo o caso. Parab‚ns Gama Academy e parceiros!!!
